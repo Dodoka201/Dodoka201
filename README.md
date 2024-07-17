@@ -1,6 +1,6 @@
 ヽ(*⌒▽⌒*)ﾉ Hi, I’m Dodoka!  
 I'm currently living in São Paulo, Brazil. (◕‿◕)  
-Actualy, i've 23 years old (in 2021) and i'm studying Electrical Engineering. ❤ c(ˆ ⌣ ˆc)  
+Actualy, i've 26 years old (in 2024) and i'm studying Electrical Engineering. ❤ c(ˆ ⌣ ˆc)  
 
 Normally, im developing useless things, just for fun.  
 What i most like is game development! My dream is to found a Game Studio 🕹️✨  
