@@ -1,6 +1,6 @@
 ヽ(*⌒▽⌒*)ﾉ Hi, I’m Dodoka!  
 I'm currently living in São Paulo, Brazil. (◕‿◕)  
-Actualy, i've 26 years old (in 2024) and i'm studying Electrical Engineering. ❤ c(ˆ ⌣ ˆc)  
+Actualy, i've 27 years old (in 2025) and i'm studying Electrical Engineering. ❤ c(ˆ ⌣ ˆc)  
 
 Normally, im developing useless things, just for fun.  
 What i most like is game development! My dream is to found a Game Studio 🕹️✨  
@@ -9,7 +9,7 @@ What i most like is game development! My dream is to found a Game Studio 🕹️
 
 🐍 Python;  
 🗄️ Html and CSS;  
-🕹️ C# in Unity3d;  
+🕹️ C#;  
 🖥️ C and C++;  
 
 But most importantly, i can learn any language that i want, and you too! Believe in yourself ( ´ ▽ ` ).｡ｏ♡
